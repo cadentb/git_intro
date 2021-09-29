@@ -1,1 +1,1 @@
-Caden Burke
+burkecad@oregonstate.edu
